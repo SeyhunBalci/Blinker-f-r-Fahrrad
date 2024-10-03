@@ -1,1 +1,1 @@
-# Blinker-f-r-Fahrrad
+# Blinker-fuer-Fahrrad
